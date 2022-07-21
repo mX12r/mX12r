@@ -8,4 +8,3 @@
 mX12r/mX12r is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Ишкейсбу суанениам а сияха лонвжам лумбао және Хентайон Джакарта қашан
